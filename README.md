@@ -1,2 +1,2 @@
-# gangadharKorrapati.github.io
-Gangadhar Korrapati Github Page.
+# vamsi-k-krishna.github.io
+Vamsi Krishna Korrapati Github Page.
